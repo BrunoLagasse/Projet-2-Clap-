@@ -5,7 +5,7 @@ Link to their website: http://www.lapelliculeensorcelee.org/
 
 
 # Duration
-2020/10/19-2020/11/27
+2020/10/19 - 2020/11/27
 
 
 # Description
